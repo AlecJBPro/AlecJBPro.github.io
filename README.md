@@ -1,2 +1,2 @@
-# AlecJBPro.github.io
+# Alec's Page!
 Hi Im Alec!
